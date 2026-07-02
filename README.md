@@ -105,8 +105,7 @@
 
 ## 📩 获取方式
 
-👉 点击购买 / 获取订阅：
-（https://g-3.三毛机场.com/#/register?code=YgrqYslp）
+👉 [点击购买 / 获取订阅：](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
 
 ---
 
