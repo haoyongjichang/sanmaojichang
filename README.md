@@ -8,7 +8,7 @@
 
 官网入口：
 👉 [点击购买 / 获取订阅](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 ---
 
 ## ✨ 核心优势
@@ -109,7 +109,7 @@
 ## 📩 获取方式
 
 👉 [点击购买 / 获取订阅](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 ---
 
 ## 🔒 声明
