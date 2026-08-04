@@ -7,7 +7,7 @@
 支持 ChatGPT 解锁 / 流媒体 / 多设备使用
 
 官网入口：
-👉 [点击购买 / 获取订阅](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
+👉 [点击购买 / 获取订阅](https://a.smjcgw.com/#/register?code=YgrqYslp)
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 ---
 
@@ -108,7 +108,7 @@
 
 ## 📩 获取方式
 
-👉 [点击购买 / 获取订阅](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
+👉 [点击购买 / 获取订阅](https://a.smjcgw.com/#/register?code=YgrqYslp)
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 ---
 
