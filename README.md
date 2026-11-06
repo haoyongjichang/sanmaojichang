@@ -7,8 +7,8 @@
 支持 ChatGPT 解锁 / 流媒体 / 多设备使用
 
 官网入口：
-👉 [点击购买 / 获取订阅](https://a.wwaann.com/?s=smjc)
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+👉 [点击购买 / 获取订阅](https://a.ggddxx.com/?s=smjc)
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 ---
 
 ## ✨ 核心优势
@@ -108,8 +108,8 @@
 
 ## 📩 获取方式
 
-👉 [点击购买 / 获取订阅](https://a.wwaann.com/?s=smjc)
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+👉 [点击购买 / 获取订阅](https://a.ggddxx.com/?s=smjc)
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 ---
 
 ## 🔒 声明
